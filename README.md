@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pavanshankar01
+- 👀 I’m interested in sleeping😅
+- 🌱 I’m currently learning cloud computing,flutter
+- 💞️ I’m looking to learn new things
+- 📫 reach at my ig pavanshankar07
